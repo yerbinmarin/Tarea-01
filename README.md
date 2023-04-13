@@ -28,7 +28,7 @@ En 2007, Hamilton hizo su debut en la Fórmula 1 con el equipo McLaren. En su pr
 * 2019 - **Mercedes.**
 * 2020 - **Mercedes.**
  
- ### ***El estilo de moda de Lewis Hamilton***
+ ### ***El estilo de Lewis Hamilton***
  "Lewis Hamilton ha sido nombrado junto con Rhianna y la difunta Reina Isabel II como una de las 93 personas con más estilo del planeta. El siete veces campeón pudo haber soportado un año difícil en la pista, terminando el año sin una pole position ni una victoria por primera vez en su carrera en la F1, pero su estilo se mantuvo evidente durante los 22 fines de semanas de carreras. El amor de Hamilton por la moda es bien conocido con el conductor de Mercedes fotografiado al lado de las pasarelas en varias ocasiones a lo largo del año, siendo la última un evento con Dior en Egipto" ("Lewis Hamilton: El más elegante", 12 de diciembre de 2022, párrafo 2).
  
  Fuera de la pista, Hamilton también ha incursionado en la música, la moda y el activismo. Es conocido por su estilo de vida extravagante y su participación en diversas causas benéficas y filantrópicas. Su impacto en la Fórmula 1 y en la cultura popular en general lo ha convertido en una figura icónica. Su impacto en la Fórmula 1 y en la cultura popular en general lo ha convertido en una figura icónica y uno de los pilotos más exitosos en la historia de este deporte.
