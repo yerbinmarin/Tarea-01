@@ -27,3 +27,7 @@ En 2007, Hamilton hizo su debut en la Fórmula 1 con el equipo McLaren. En su pr
 * 2018 - **Mercedes.**
 * 2019 - **Mercedes.**
 * 2020 - **Mercedes.**
+ 
+ Fuera de la pista, Hamilton también ha incursionado en la música, la moda y el activismo. Es conocido por su estilo de vida extravagante y su participación en diversas causas benéficas y filantrópicas. Su impacto en la Fórmula 1 y en la cultura popular en general lo ha convertido en una figura icónica. 
+ <p align="center"> <img src="https://pbs.twimg.com/media/FqNFz-NXgAEBXyf.jpg" width="600">
+ 
