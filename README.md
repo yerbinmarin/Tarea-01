@@ -20,7 +20,7 @@ En 2007, Hamilton hizo su debut en la Fórmula 1 con el equipo McLaren. En su pr
 
  Hamilton ha logrado numerosos récords a lo largo de su carrera, incluyendo siete títulos de campeonato mundial, igualando el récord establecido por Michael Schumacher. Ha ganado múltiples Grandes Premios y ha establecido récords de vueltas rápidas y pole positions. 
  
- ## ***Lista de los Años en que Lewis Hamilton Ganó sus Siete Campeonatos de Fórmula 1***
+ ## Lista de los Años en que Lewis Hamilton Ganó sus Siete Campeonatos de Fórmula 1
  
 * 2008 - **McLaren-Mercedes.**
 * 2014 - **Mercedes.**
@@ -30,7 +30,7 @@ En 2007, Hamilton hizo su debut en la Fórmula 1 con el equipo McLaren. En su pr
 * 2019 - **Mercedes.**
 * 2020 - **Mercedes.**
  
- ### ***El estilo de Lewis Hamilton***
+ ### El estilo de Lewis Hamilton
  
  "Lewis Hamilton ha sido nombrado junto con Rhianna y la difunta Reina Isabel II como una de las 93 personas con más estilo del planeta. El siete veces campeón pudo haber soportado un año difícil en la pista, terminando el año sin una pole position ni una victoria por primera vez en su carrera en la F1, pero su estilo se mantuvo evidente durante los 22 fines de semanas de carreras. El amor de Hamilton por la moda es bien conocido con el conductor de Mercedes fotografiado al lado de las pasarelas en varias ocasiones a lo largo del año, siendo la última un evento con Dior en Egipto" ("Lewis Hamilton: El más elegante", 12 de diciembre de 2022, párrafo 2).
  
@@ -44,6 +44,7 @@ Algunas de sus aportes han sido:
 <p align="center"><a href="https://www.youtube.com/watch?v=79Nx9VP5ztY"> <img src="https://pbs.twimg.com/media/FqNFz-NXgAEBXyf.jpg" width="600">
   
   ### ***Referencias***
+  
   * Artículo de GPfans.com en español sobre el estilo de moda de Lewis Hamilton en la F1:
 Título del artículo: "Lewis Hamilton: El más elegante"
 URL: https://www.gpfans.com/es/f1-noticias/97809/lewis-hamilton-el-mas-elegante/
