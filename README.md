@@ -42,7 +42,7 @@ Algunas de sus aportes han sido:
  * ["Hamilton Here."](https://www.youtube.com/watch?v=hYYaePzedbE)
  * ["Black lives matter."](https://www.youtube.com/watch?v=Qepog4PaeI8)
 
-<p align="center"><a href="https://www.youtube.com/watch?v=79Nx9VP5ztY"> <img src="https://pbs.twimg.com/media/FqNFz-NXgAEBXyf.jpg" width="600">
+<a href="https://www.youtube.com/watch?v=79Nx9VP5ztY"> <img src="https://pbs.twimg.com/media/FqNFz-NXgAEBXyf.jpg" width="600">
   
  ***Referencias***
   
