@@ -17,7 +17,7 @@ En 2007, Hamilton hizo su debut en la Fórmula 1 con el equipo McLaren. En su pr
  Lewis Hamilton hizo historia al obtener su victoria número 100 en su carrera en la Fórmula 1 durante el Gran Premio de Rusia en 2021. Este logro es un testimonio de su talento y dedicación como piloto, y lo consolida como uno de los más exitosos en la historia de este deporte. Fue una carrera emocionante en la que Hamilton mostró su habilidad en las últimas vueltas para asegurar la victoria. Es un hito verdaderamente impresionante en la carrera de Hamilton en la Fórmula 1, dejando una marca indeleble en la historia de este deporte de motor de élite.
 
 ![Lewuis](https://user-images.githubusercontent.com/129206978/231617826-36244c00-1089-49be-9a3d-2294364265a4.png)
-
+![](perro.jpg)
  Hamilton ha logrado numerosos récords a lo largo de su carrera, incluyendo siete títulos de campeonato mundial, igualando el récord establecido por Michael Schumacher. Ha ganado múltiples Grandes Premios y ha establecido récords de vueltas rápidas y pole positions. 
  
  **Lista de los Años en que Lewis Hamilton Ganó sus Siete Campeonatos de Fórmula 1.**
